@@ -16,8 +16,7 @@ hallokajhgdkhafdhSDckngyf
 mjhgjfvmkhlkhnutythtyk
 zvdfbfn g mm gxh gj bmnhnfxh sdffcsgdgffd
 ljnlfdgbkisvnwsvnowsvow;gv;prwinsgfg
-efdriguoieuhg9owopfgpowrfow[fghrf
-bgfhjfjgkhl;lrtrtghrtge
+efdriguoieuhg9owopfgpowrfow[fghrff
 v dxfbvp dmpsfbm pdfbtgffff
 helloweatherrrtgftgfy
 vbomodfbopsv;lasmp[cm;sldcvggffgf
