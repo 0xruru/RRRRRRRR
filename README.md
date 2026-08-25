@@ -11,9 +11,9 @@ jmhkjdvnodl;kvdbvp;dmfpvdgffmfgfvrt
 gvlgiowijpeougrfisdnvljsbkfugvfrvfbfgbfgfefcgv
 kjhbviNPUISV[oNS{VOSv'gfgfgffjrfjfftvfffff
 b;kfgmbpdvn bisapfs', vlnskfggjjffgffffvfvr
-hallokajhgdkhafdhSDckngyfgtrjtfgffnjfgfgfdf
+hallokajhgdkhafdhSDckngyfgtrjtfgfffnjfgfgfdf
 mjhgjfvmkhlkhnutythtykfgfhfggvgffffbfvhff
-zvdfbfn g mm gxh gj bmnhnfxh sdffcsgdgffdhffrgfgfgfggvvgf
+zvdfbfnf g mm gxh gj bmnhnfxh sdffcsgdgffdhffrgfgfgfggvvgf
 v dxfbvp dmpsfbm pdfbtgffffffrgefffgfvbbff
 helloweatherrrtgftgfyg4ffggfbvfvgvf
 vbomodfbopsv;lasmp[cm;sldcvggffgffggkgrfffgjghbvfvv
