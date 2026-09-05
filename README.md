@@ -7,8 +7,7 @@ g ;edpgaio]g[oEff
 v ksjnvpcinzl;iupAJsnv[oasfgfghf
 jklhdfvl;agvpieungdvfdgfvvf
 vkljhdufvbuisdvnosnvogvtgrnxfvdgfgfv
-jmhkjdvnodl;kvdbvp;dmfpvdgffmfgfvrt
-gvlgiowijpeougrfisdnvljsbkfugvfrvfbfgbfgfefcgv
+jmhkjdvnodl;kvdbvp;dmfpvdgffmfgfvrtvfcgv
 kjhbviNPUISV[oNS{VOSv'gfgfgffjrfjfftvfffff
 b;kfgmbpdvn bisapfs', vlnskffggjjffgffffvfvr
 hallokajhgdkhafdhSDckngyfgtrjgtfgfffnjfgfgfdf
